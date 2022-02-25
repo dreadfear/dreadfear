@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dreadfear
-- 👀 I’m interested in Any thing get me from the paon
+- 👀 I’m interested in Any thing get me from the pain
 - 🌱 I’m currently learning get over eternal suffring
 - 💞️ I’m looking to collaborate on depression therapy
 - 📫 How to reach me ... You don't
