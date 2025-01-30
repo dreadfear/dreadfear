@@ -1,4 +1,4 @@
-I'll help you create 2 markdown files based on the previous questions.
+
 
 **1. core-react-concepts.md**
 ```markdown
